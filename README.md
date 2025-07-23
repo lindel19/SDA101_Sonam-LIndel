@@ -1,1 +1,1 @@
-# SDA101_Sonam-LIndel
+# SDA101_Sonam-Lindel
